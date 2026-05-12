@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with automatic Automation for birdeye sniper bot | take-profit & MEV-detection. Featuring take-profit and MEV-detection, it's the best choice
 
 
 
